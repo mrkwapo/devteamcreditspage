@@ -1,1 +1,1 @@
-Dev Team Credits page for Code Mentor Center
+Dev Team 2 Credits page for Code Mentor Center.
